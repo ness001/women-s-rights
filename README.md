@@ -1,1 +1,1 @@
-# women-s-right
+# women-s-rights
